@@ -1,3 +1,3 @@
 # Max
-Starting a lesson with Suzanne 👌
-Way to go and gradually build up 👍
+I have started to develop Tech skills 👌
+Software Developer, IT Networking, Cyber Security, Database Management 👍
